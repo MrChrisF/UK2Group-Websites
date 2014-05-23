@@ -9,5 +9,5 @@ VI.net
 Midphase.com
 100TB.com
 Westhost.com
-Resekk.biz
+Resell.biz
 Ukgroup.com
